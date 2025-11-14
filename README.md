@@ -226,6 +226,15 @@ If the idea helps even one engineer or one AI company, great. If not, it was sti
 Enjoy.  
 — Hanamaruki
 
+---
 
+note.com
 
+→https://note.com/cheeky_daisy8872/n/nc162c993a3c4
+
+https://note.com/cheeky_daisy8872/n/n907f580276a7
+
+https://note.com/cheeky_daisy8872/n/n44f0ec98955b
+
+https://note.com/cheeky_daisy8872/n/n103a9fc0939a
 
